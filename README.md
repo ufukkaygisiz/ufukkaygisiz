@@ -1,5 +1,6 @@
 
-![anka](https://github.com/user-attachments/assets/79e6ac5a-3899-4ee0-aab5-5f472df0c0fe)
+![anka](https://github.com/user-attachments/assets/0ce9e089-fd50-4352-8810-a16878857297)
+
 
 
 
