@@ -1,2 +1,7 @@
 
-![tenor](https://github.com/user-attachments/assets/59c22c77-b8c1-401e-aa52-80bac0025652)
+![anka](https://github.com/user-attachments/assets/79e6ac5a-3899-4ee0-aab5-5f472df0c0fe)
+
+
+
+
+Get Ready for Life !
